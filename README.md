@@ -4,7 +4,7 @@ Links:
 
 ##JAVASCRIPT
 
-## * [Console.log("JS")] (https://chat.whatsapp.com/2KglqkMN6Wk85mpoosCtc1)
+ * [Console.log("JS")] (https://chat.whatsapp.com/2KglqkMN6Wk85mpoosCtc1)
 
 
 ##Inteligência Artificial
