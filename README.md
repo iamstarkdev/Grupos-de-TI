@@ -10,3 +10,6 @@ Links:
 ##Inteligência Artificial
 
 * [Inteligência Artificial] (https://chat.whatsapp.com/AUU8Medw23TBHSFS6jLI2c)
+
+##Miscelaneous
+* [Feels of Developers] (https://chat.whatsapp.com/invite/CMBwOP0AfQdAC3QyMtCZLx)
