@@ -14,3 +14,8 @@ Links:
 
 ##Miscelaneous
 * [Feels of Developers] (https://chat.whatsapp.com/invite/CMBwOP0AfQdAC3QyMtCZLx)
+
+##IndieDev/LigaDev
+* [IndieDev/LigaDev] (https://chat.whatsapp.com/9VSxjTmFnseJOjfc21Ixbb)
+
+
